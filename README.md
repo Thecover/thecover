@@ -5,7 +5,6 @@
 > Design by thecover
 > 
 
-![image.png](attachment:ad9717b5-f38b-4fc2-ae48-d7482a87a28f:image.png)
 
 ## 📖 简介 (Introduction)
 
